@@ -15,7 +15,7 @@ How to Download and Install Stickman Party Mod APK
 Follow these simple steps to download and install the game:
 
 # Click on the download link below:
-<a href="[url](https://stickmanpartymodapk.com/)">Download Stickman Party Mod APK</a>
+<a href="https://stickmanpartymodapk.com/">Download Stickman Party Mod APK</a>
 
 Allow installations from unknown sources in your device settings.
 

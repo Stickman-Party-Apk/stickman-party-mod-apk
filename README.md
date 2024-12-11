@@ -41,6 +41,6 @@ This repository is for educational and informational purposes only. Use Mod APKs
 
 # Download Now
 Click here to download the latest version:
-Stickman Party Mod APK
+<a href="https://stickmanpartymodapk.com/">Stickman Party APK</a>
 
 Enjoy the ultimate gaming experience with Stickman Party Mod APK and take your mini-game adventures to the next level!
